@@ -1,2 +1,2 @@
-# Oscar-2023-Projeto
+# Alunos
 Tomaz Martins Batista e Jeferson Ferreira Freitas
